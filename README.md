@@ -1,0 +1,2 @@
+# ridaisai72Sample
+サンプル
